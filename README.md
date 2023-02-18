@@ -18,7 +18,6 @@
 
 - 📬 You can use it to reach me. tol_celik@hotmail.com
 
-<br/>
 
 ### Languages
 <div>
